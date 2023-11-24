@@ -11,3 +11,7 @@ Il vivait paisiblement avec sa nouvelle famille, mais la une trahison par sa pro
 C'est en se réveillant, sans aucun avertissement, que Whiskers atterit sur un étrangé à 4 pattes. De toutes les créature sur terre, sa famille avait choisi d'adopter un chien ! **un chien !** Mais qu'elle idée. 
 
 L'idée même de cohabiter avec cet etre remuant, manquant de grace et sans cesse sur exité etait inconcevable pour Whiskers.
+
+## Cohabitation douteuse
+Il ne pouvait s'empêcher de lancer des regards méfiants au chien, dont la queue remuante et l'excitation débordante semblaient être une offense à la tranquillité féline de Whiskers. Malgré tous les efforts de la famille pour favoriser une cohabitation harmonieuse, Whiskers se retrouvait souvent perché sur des endroits inaccessibles au chien, observant la scène avec dédain.
+
